@@ -13,3 +13,5 @@ nem szep dolog a hazudozas
 Nem szoktam hazudni, csak nagyon elkülönített esetekben
 
 hat ez ezek szerint annak minosul 
+
+Lehet, de ez most nem ilyen, nincs szekrény amiből ki kéne jönnöm
