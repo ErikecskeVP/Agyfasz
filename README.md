@@ -9,3 +9,5 @@ Szerintem te buzi vagy!
 El kell hogy szomorítsalak, ez nem igaz
 
 nem szep dolog a hazudozas
+
+Nem szoktam hazudni, csak nagyon elkülönített esetekben
