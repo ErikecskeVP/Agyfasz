@@ -7,3 +7,5 @@ Geci nagy bölcssségek mennek itt gyerekek
 Szerintem te buzi vagy!
 
 El kell hogy szomorítsalak, ez nem igaz
+
+nem szep dolog a hazudozas
